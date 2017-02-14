@@ -4,7 +4,7 @@ These are a few of my favorite things:
 
 - These are a few of my FAVOORITE things!
 - Raindrops on roses
-- Whiskers on kittens
+- Whiskers on lizards
 - Bright copper kettles
 - Warm woolen mittens
 - Brown paper packages
